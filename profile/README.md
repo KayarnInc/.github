@@ -1,1 +1,1 @@
-# Kayarn Inc
+# Kayarn Technologies
